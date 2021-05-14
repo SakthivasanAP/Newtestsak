@@ -1,1 +1,0 @@
-ena than nadakum nadakatume
